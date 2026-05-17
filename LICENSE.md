@@ -1,10 +1,10 @@
-Instant Surfshark Client | high-speed servers + server switching is the best Surfshark client with high-speed servers and server switching. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/surfshark-zq77/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
