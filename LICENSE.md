@@ -1,10 +1,10 @@
-Instantâneo Surfshark Cliente | servidores de alta velocidade + troca de servidor é o melhor Surfshark cliente com servidores de alta velocidade e troca de servidor. Seguro e
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/surfshark-zq77/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
