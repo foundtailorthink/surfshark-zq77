@@ -1,4 +1,4 @@
-
+Instant Surfshark Client | high-speed servers + server switching is the best Surfshark client with high-speed servers and server switching. Secure and optimized.
 
 
 
